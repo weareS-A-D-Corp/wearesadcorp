@@ -1,2 +1,2 @@
 # wearesadcorp.github.io
-weareS.A.D. Corp. Overview
+weareS.A.D. Corporation (Solidarity Against Discrimination)
